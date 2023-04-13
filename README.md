@@ -1,4 +1,4 @@
-[![NeoGif](https://i.gifer.com/AaPr.gif)](https://www.youtube.com/watch?v=SDkAGkd4NLc) 
+[![NeoGif](https://i.pinimg.com/originals/9b/9c/27/9b9c275d4d4c2e6b59555a673a519893.gif)]() 
 
 <p align="center">
   ! 𝕃𝕀𝕃 𝕊𝕄𝕁 𝟝𝟚#2089
